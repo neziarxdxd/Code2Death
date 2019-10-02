@@ -2,6 +2,16 @@
 
 *this is our first school partnership as a content creator in our page PROGRAMMER AKO*
 
+### About COde2Death
+The Code2Death Programming Competition is in partnership with Programmer ako -_-
+
+It's not just a regular Facebook page, they are devoted and passionate programmers who helps the programming community grow.They will be our special guest to facilitate the competition as well.
+
+Get ready Holy Angel University CICT Students for the challenges tomorrow! 
+
+
+### WINNERS
+
 Here are your Code2Death survivors! ☠️
 
 We would like to congratulate all the winners of the programming competition that was held on September 20-21, 2019 during CICT Days.
